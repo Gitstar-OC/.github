@@ -19,5 +19,13 @@ List of best quotes I have heard, seen, read or wrote in my life!
 
 ### Everybody wants the view but no one want's to climb 
 
-If I did what you think, then I made you what you are. Gotham (S2 E14) 
-You get 2 choices life, happiness and truth
+### If I did what you think, then I made you what you are. Gotham (S2 E14) 
+### You get 2 choices life, happiness and truth (chose the first one) 
+
+### sorry isn’t a word. it’s a promise that someone has changed. a sorry without change is manipulation.
+
+### I trusted you blindly and you proved to me that i was blind.
+
+### Your lack of commitment is an insult to those who believe in you
+
+### Hesitation isn’t a weakness. It’s a lesson learned from past mistakes
