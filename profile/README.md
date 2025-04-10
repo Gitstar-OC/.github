@@ -29,3 +29,7 @@ List of best quotes I have heard, seen, read or wrote in my life!
 ### Your lack of commitment is an insult to those who believe in you
 
 ### Hesitation isn’t a weakness. It’s a lesson learned from past mistakes
+
+Grief is only love that’s got no place to go.
+
+it isn't death that we fear, we fear that we won't finish our story with the pages that we are missing
